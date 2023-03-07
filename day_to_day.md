@@ -61,8 +61,60 @@
 - Cleaned the kitchen.
 - Started season 4 of South Park, I don't know how I got here.
 
-### 13.02.2023
-
 ### 14.02.2023
+- I had a Valentine's day dinner with Ronaldo, Josue and Pacay.
+- There was a strong snow storm at 10 am.
 
-### 15.02.2023
+### 20.02.2023
+- Finished South park season 2 <3
+- Started watching Modern Family
+
+### 21.02.2023
+- Got a haircut, its actually pretty nice
+
+### 22.02.2023
+- Valentina gave me chocolates because of men's day in Russia, I guess... <3
+
+### 23.02.2023
+- Went to a coffee place with a lot of cats, it was curious, but cool(and expensive).
+- Drank some vodka and called 2 ex girlfriends.
+
+### 26.02.2023
+- Went to park Skazka with Roger and Natasha, I hate Natasha now.
+- Got my penguin from Natasha, Pingu is his name.
+- Got some confusing feelings for the first time in more than a year.
+
+### 01.03.2023
+- Hung out with Zaira, visited the finished metro line BKL.
+
+### 02.03.2023
+- Cleaned my Facebook account.
+- Learnt to do origami roses.
+
+### 03.03.2023
+- Got second place at a debate thing, it was cool.
+- Mixed up feelings.
+
+### 04.03.2023
+- Date with Valentina (Date?) (Went wrong? went fine? I'm so confused)
+- Longest night of my life
+
+### 05.03.2023
+- Became friends with an unicorn.
+- Wrote post about causality
+
+### 06.03.2023
+- Made origami roses, burned my fingers while doing it(Cause I used burned plastic to make them realistic)
+
+### 07.03.2023
+- Gave roses to Valentina.
+- Started working on semestral project.
+
+### 08.03.2023
+-
+
+### 09.03.2023
+-
+
+### 10.03.2023
+-
